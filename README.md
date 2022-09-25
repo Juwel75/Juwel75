@@ -1,6 +1,7 @@
-### Hi there 👋, Hi I'm Juwel 
-#### Graphic Designer
 ![Graphic Designer](https://pbs.twimg.com/profile_banners/1566475625723883520/1663959609/600x200)
+# Hi there 👋, Hi I'm Juwel 
+# Graphic Designer
+
 
 Hlw, My name is Juwel and I am working for 5+ years as a professional graphic designer. I am passionate about graphic design and would love to work on any of your projects. My design services include book Cover Design, ebook cover design, Poster Design, Logo Design, Signature logo design, Business Card Design, Photo Editing, and manipulation. 
 Feel free to contact me when you need at any time, and Order with Confidence. Thanks. 
